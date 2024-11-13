@@ -1,5 +1,6 @@
-* 2 avocados
+* 4 avocados
 * 1 lime
 * 2 tsp salt
 * 1/2 onion
 * 1/2 tbsp coriander
+* 2 chillies
