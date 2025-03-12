@@ -6,4 +6,3 @@
 * add salt
 * and mix well
 * serve cold
-
